@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rahullenka86@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tP1oLir0oOZ7rmE3w9sqdxlVZNlm2vjg/view?usp=drive_link]([https://drive.google.com/file/d/1tP1oLir0oOZ7rmE3w9sqdxlVZNlm2vjg/view?usp=drive_link](https://drive.google.com/file/d/1zH6cT0fEMM0GJd98A7xEt7LNPRgmdaMb/view?usp=sharing))
+- 📄 Know about my experiences [(https://drive.google.com/file/d/1zH6cT0fEMM0GJd98A7xEt7LNPRgmdaMb/view?usp=sharing)]
 
 - ⚡ Fun fact **I try to be funny**
 
